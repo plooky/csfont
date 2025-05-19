@@ -9,5 +9,5 @@ List of Multiple Letters as Smybols
 ⓅⓄⒼⓎⒷ
 
 
-google drive link i made w zip(s)
+google drive link i made w zip(s) (((DOWNLOAD HERE ___++)))
 [cs2_font](https://drive.google.com/drive/folders/1ysQWnz65hikm97bM65LwwyI0CdKg0xot?usp=sharing)
